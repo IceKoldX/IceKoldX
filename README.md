@@ -1,4 +1,4 @@
-<img src="![IceWall 2560x1440](https://github.com/user-attachments/assets/840bdf2f-a8c8-4dc6-9b0f-0e69344257cc)/>
+![IceWall 2560x1440](https://github.com/user-attachments/assets/840bdf2f-a8c8-4dc6-9b0f-0e69344257cc)
 
 ## About Me
 
